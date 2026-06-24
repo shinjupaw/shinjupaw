@@ -1,5 +1,5 @@
 <div align="center">
-
+still wip sos
 <img src= "https://github.com/shinjupaw/shinjupaw/blob/febf11aa4e6f9eece2768ec8ac0be0c3ac20fc81/Untitled233_20260624162904.png" alt="Description" width="1200">
 
 
