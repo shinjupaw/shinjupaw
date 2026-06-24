@@ -1,5 +1,5 @@
 <div align="center">
-<img src= "https://github.com/shinjupaw/shinjupaw/blob/febf11aa4e6f9eece2768ec8ac0be0c3ac20fc81/Untitled233_20260624162904.png" alt="Description" width="1200">
+<img src= "https://github.com/shinjupaw/shinjupaw/blob/febf11aa4e6f9eece2768ec8ac0be0c3ac20fc81/Untitled233_20260624162904.png" alt="Description" width="1000">
 
 <a href="https://hits.sh/github.com/hiopes/"><img alt="Hits" src="https://hits.sh/github.com/hiopes.svg?label=angels&extraCount=1712&color=F1E3CB&labelColor=3B618E&logo=4chan"/></a>
    
@@ -27,5 +27,5 @@
 
 still wip
 
-<img src="https://github.com/shinjupaw/shinjupaw/blob/19cce0a3a0224f15183c8529c8996929e4af8266/Untitled237_20260624123214.png" alt="Description" width="1200">
+<img src="https://github.com/shinjupaw/shinjupaw/blob/19cce0a3a0224f15183c8529c8996929e4af8266/Untitled237_20260624123214.png" alt="Description" width="1000">
 </div>
