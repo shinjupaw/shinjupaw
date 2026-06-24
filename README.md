@@ -1,5 +1,13 @@
 <div align="center">
-im remaking this completely ok dont flame me pls
 
-<img src= "https://github.com/shinjupaw/shinjupaw/blob/37f88f9d77fca31377226ba69d0391d3b6ffe7d3/e436bc94ecaa26d10c3be82966cfc364.jpg" alt="Description" width="500">
+<img src= "https://github.com/shinjupaw/shinjupaw/blob/febf11aa4e6f9eece2768ec8ac0be0c3ac20fc81/Untitled233_20260624162904.png" alt="Description" width="1200">
+
+
+   ⠀𓏼      𓈒  | ͜͝   주황
+
+   ⠀✿࿁   ⬚     ܄
+
+   ⠀  ᩧ        ͜͝ 𓏪。𓐇♡֯
+
+<img src= "https://github.com/shinjupaw/shinjupaw/blob/febf11aa4e6f9eece2768ec8ac0be0c3ac20fc81/Untitled235_20260624123316.png" alt="Description" width="700">
 </div>
