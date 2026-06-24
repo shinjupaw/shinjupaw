@@ -1,7 +1,8 @@
 <div align="center">
-still wip sos
 <img src= "https://github.com/shinjupaw/shinjupaw/blob/febf11aa4e6f9eece2768ec8ac0be0c3ac20fc81/Untitled233_20260624162904.png" alt="Description" width="1200">
 
+<a href="https://hits.sh/github.com/hiopes/"><img alt="Hits" src="https://hits.sh/github.com/hiopes.svg?label=angels&extraCount=1712&color=F1E3CB&labelColor=3B618E&logo=4chan"/></a>
+   
 &emsp;
 
    ⠀𓏼      𓈒  | <img src="https://github.com/shinjupaw/shinjupaw/blob/19cce0a3a0224f15183c8529c8996929e4af8266/d730bcf5.gif" alt="Description" width="20"> ꕀ️ ഒ ˖ ｡
@@ -23,6 +24,8 @@ still wip sos
 &emsp;
 
 <img src="https://github.com/shinjupaw/shinjupaw/blob/ef1c51f4399b9ff818c28f5035f6afca9436286e/4qty3o.gif" alt="Description" width="100"> <img src="https://github.com/shinjupaw/shinjupaw/blob/19cce0a3a0224f15183c8529c8996929e4af8266/e107.png" alt="Descirption" width="100"> <img src="https://github.com/shinjupaw/shinjupaw/blob/19cce0a3a0224f15183c8529c8996929e4af8266/e43.gif" alt="Description" width="100"> <img src="https://github.com/shinjupaw/shinjupaw/blob/19cce0a3a0224f15183c8529c8996929e4af8266/tumblr_92f4652846350b76b9a55b96df1b5671_5cf19f16_100.png" alt="Description" width="100"> <img src="https://github.com/shinjupaw/shinjupaw/blob/19cce0a3a0224f15183c8529c8996929e4af8266/tumblr_25f7235b5b8b462f8e4fafd3cef66994_b163fbda_100.png" alt="Description" width="100">
+
+still wip
 
 <img src="https://github.com/shinjupaw/shinjupaw/blob/19cce0a3a0224f15183c8529c8996929e4af8266/Untitled237_20260624123214.png" alt="Description" width="1200">
 </div>
