@@ -26,6 +26,14 @@
 
 &emsp;
 
+<img src="https://github.com/shinjupaw/shinjupaw/blob/19cce0a3a0224f15183c8529c8996929e4af8266/bubbles.gif" alt="Description" width="300">
+
+&emsp;
+
+<sub> <a href="https://github.com/dystortia">♡ bayleaf ♡</a> <a href="https://github.com/AsahiyM3ow">wasabi ♡</a> <a href="https://github.com/mvvnchkin">munchkin ♡</a> <a href="https://github.com/iam-mygfbunny">sumi/putri ♡</a> <a href="https://github.com/SONNELLINOENTHUSIAST">jaxie ♡</a> <a href="https://github.com/zt4r-z">ztar ♡</a> </sub>
+
+&emsp;
+
 <img src="https://github.com/shinjupaw/shinjupaw/blob/5552bcbb609ca14d0e026f9f4a28899199b2c44e/Untitled240_20260625225101.png" alt="Description" width="200">
 
 &emsp;
