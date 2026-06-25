@@ -5,6 +5,9 @@
    
 &emsp;
 
+<img src="https://github.com/shinjupaw/shinjupaw/blob/0cf1f481de2ca7e4f88e56b580985bed22ad0878/p4cb6p.gif" alt="Description" width="70"> <img src="https://github.com/shinjupaw/shinjupaw/blob/0cf1f481de2ca7e4f88e56b580985bed22ad0878/b80krp.gif" alt="Description" width="95"> <img src="https://github.com/shinjupaw/shinjupaw/blob/0cf1f481de2ca7e4f88e56b580985bed22ad0878/saint.gif" alt="Description" width="65"> 
+&emsp;
+
    ⠀𓏼      𓈒  | <img src="https://github.com/shinjupaw/shinjupaw/blob/19cce0a3a0224f15183c8529c8996929e4af8266/d730bcf5.gif" alt="Description" width="20"> ꕀ️ ഒ ˖ ｡
 
    ⠀𝜗𝜚࿁   ⬚     ܄ <img src="https://github.com/shinjupaw/shinjupaw/blob/ef1c51f4399b9ff818c28f5035f6afca9436286e/315ed8a5.gif" alt="Discription" width="20">
@@ -17,9 +20,9 @@
 
 &emsp;
 
- ̣̣    : ͜     ᚐׅ𓏼ིྀ ⠀˙  ֪     ͜͝ ̣̣̥|  ۫
+ ̣̣    : ͜     ᚐׅ𓏼ིྀ ⠀˙ <img src="https://github.com/shinjupaw/shinjupaw/blob/0cf1f481de2ca7e4f88e56b580985bed22ad0878/53ptk2.gif" alt="Description" width="20"> ֪     ͜͝ ̣̣̥|  ۫
 
-  ͝ |꒡ ͝       ·  <img src="https://github.com/shinjupaw/shinjupaw/blob/ef1c51f4399b9ff818c28f5035f6afca9436286e/5f44dd7e.gif" alt="Description" width="20">   ͜⠀⠀  ᣟ݂ ͜  ♡۪۪۪
+  ͝ |꒡ ͝       ·  <img src="https://github.com/shinjupaw/shinjupaw/blob/ef1c51f4399b9ff818c28f5035f6afca9436286e/5f44dd7e.gif" alt="Description" width="20">   ͜⠀⠀  ᣟ݂ ͜<img src="https://github.com/shinjupaw/shinjupaw/blob/0cf1f481de2ca7e4f88e56b580985bed22ad0878/osiwll.png" alt="Description" width="20">  ♡۪۪۪
 
 &emsp;
 
