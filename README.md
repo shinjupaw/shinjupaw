@@ -1,7 +1,7 @@
 <div align="center">
 <img src= "https://github.com/shinjupaw/shinjupaw/blob/febf11aa4e6f9eece2768ec8ac0be0c3ac20fc81/Untitled233_20260624162904.png" alt="Description" width="1000">
 
-<img src="https://github.com/shinjupaw/shinjupaw/blob/4fb072d12826892909bc5c2e0fcacbce384e073a/2mam9n.gif" alt="Description" width="20"> <a href="https://hits.sh/github.com/hiopes/"><img alt="Hits" src="https://hits.sh/github.com/hiopes.svg?label=angels&extraCount=1712&color=F1E3CB&labelColor=3B618E&logo=4chan"/></a> <img src="" alt="Description" width="20">
+<img src="https://github.com/shinjupaw/shinjupaw/blob/4fb072d12826892909bc5c2e0fcacbce384e073a/2mam9n.gif" alt="Description" width="20"> <a href="https://hits.sh/github.com/hiopes/"><img alt="Hits" src="https://hits.sh/github.com/hiopes.svg?label=angels&extraCount=1712&color=F1E3CB&labelColor=3B618E&logo=4chan"/></a> <img src="https://github.com/shinjupaw/shinjupaw/blob/4fb072d12826892909bc5c2e0fcacbce384e073a/jih8cp.gif" alt="Description" width="20">
    
 &emsp;
 
