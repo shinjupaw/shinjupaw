@@ -34,7 +34,7 @@
 
 &emsp;
 
-<img src="https://github.com/shinjupaw/shinjupaw/blob/5552bcbb609ca14d0e026f9f4a28899199b2c44e/Untitled240_20260625225101.png" alt="Description" width="200">
+<img src="https://github.com/shinjupaw/shinjupaw/blob/5552bcbb609ca14d0e026f9f4a28899199b2c44e/Untitled240_20260625225101.png" alt="Description" width="150">
 
 &emsp;
 
