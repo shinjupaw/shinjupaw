@@ -30,7 +30,7 @@
 
 &emsp;
 
-<sub> <a href="https://github.com/dystortia">♡ bayleaf ♡</a> <a href="https://github.com/AsahiyM3ow">wasabi ♡</a> <a href="https://github.com/mvvnchkin">munchkin ♡</a> <a href="https://github.com/iam-mygfbunny">sumi/putri ♡</a> <a href="https://github.com/SONNELLINOENTHUSIAST">jaxie ♡</a> <a href="https://github.com/zt4r-z">ztar ♡</a> </sub>
+<img src="https://github.com/shinjupaw/shinjupaw/blob/4fb072d12826892909bc5c2e0fcacbce384e073a/2mam9n.gif" alt="Description" width="20"> <sub> <a href="https://github.com/dystortia">bayleaf</a> <a href="https://github.com/AsahiyM3ow">wasabi</a> <a href="https://github.com/mvvnchkin">munchkin</a> <a href="https://github.com/iam-mygfbunny">sumi/putri</a> <a href="https://github.com/SONNELLINOENTHUSIAST">jaxie</a> <a href="https://github.com/zt4r-z">ztar</a> </sub> <img src="https://github.com/shinjupaw/shinjupaw/blob/4fb072d12826892909bc5c2e0fcacbce384e073a/jih8cp.gif" alt="Description" width="20">
 
 &emsp;
 
