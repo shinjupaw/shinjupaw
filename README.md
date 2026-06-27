@@ -32,7 +32,7 @@ ${\textsf{\color{#76aeb2} ᥲ𝕥aᑲ᥆ⱺƙ}}$
 
 <a href="https://shinjupuppy.atabook.org/"><img src="https://github.com/shinjupaw/shinjupaw/blob/c3aded3be64e0a775bc94092464df9b1b9917d6e/t69pwo.png" alt="Description" width="100">
 
-<img src="https://github.com/shinjupaw/shinjupaw/blob/4fb072d12826892909bc5c2e0fcacbce384e073a/2mam9n.gif" alt="Description" width="20"> <sub> <a href="https://github.com/dystortia">bayleaf</a> <a href="https://github.com/AsahiyM3ow">wasabi</a> <a href="https://github.com/mvvnchkin">munchkin</a> <a href="https://github.com/iam-mygfbunny">sumi/putri</a> <a href="https://github.com/SONNELLINOENTHUSIAST">jaxie</a> <a href="https://github.com/zt4r-z">ztar</a> <a href="https://github.com/Lucallislullaby">lulu</a></sub> <img src="https://github.com/shinjupaw/shinjupaw/blob/4fb072d12826892909bc5c2e0fcacbce384e073a/jih8cp.gif" alt="Description" width="20">
+<img src="https://github.com/shinjupaw/shinjupaw/blob/4fb072d12826892909bc5c2e0fcacbce384e073a/2mam9n.gif" alt="Description" width="20"> <sub> <a href="https://github.com/dystortia">bayleaf</a> , <a href="https://github.com/AsahiyM3ow">wasabi/my angel babe /p</a> , <a href="https://github.com/mvvnchkin">munchkin</a> , <a href="https://github.com/iam-mygfbunny">sumi/putri</a> , <a href="https://github.com/SONNELLINOENTHUSIAST">jaxie</a> , <a href="https://github.com/zt4r-z">ztar</a> , <a href="https://github.com/Lucallislullaby">lulu</a></sub> <img src="https://github.com/shinjupaw/shinjupaw/blob/4fb072d12826892909bc5c2e0fcacbce384e073a/jih8cp.gif" alt="Description" width="20">
 
 &emsp;
 
