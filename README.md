@@ -4,7 +4,7 @@
 <img src="https://github.com/shinjupaw/shinjupaw/blob/3bf4cc2ff04663b4bd8e1e1bec0f08b737480dfe/8fafada6.gif" alt="Description" width="28"> <a href="https://hits.sh/github.com/shinjupaw/"><img alt="Hits" src="https://hits.sh/github.com/shinjupaw.svg?label=%E2%99%A1&extraCount=9090&color=F7F4E2&labelColor=ECB2CC&logo=4chan"/></a> <img src="https://github.com/shinjupaw/shinjupaw/blob/3bf4cc2ff04663b4bd8e1e1bec0f08b737480dfe/6c691ed8.gif" alt="Description" width="28">
 &emsp;
 
-${\color{#F5E3E1}"or \color{#F0C1DF}de \color{#E9AEC3}r \space \color {#DF9CB3}up!"{}}$
+<sub> ${\textsf{\color{#f0c1df} “ order up ! ” }}$ </sub>
 
 &emsp;
 
