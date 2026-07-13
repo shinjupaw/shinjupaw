@@ -4,11 +4,7 @@
 <img src="https://github.com/shinjupaw/shinjupaw/blob/3bf4cc2ff04663b4bd8e1e1bec0f08b737480dfe/8fafada6.gif" alt="Description" width="28"> <a href="https://hits.sh/github.com/shinjupaw/"><img alt="Hits" src="https://hits.sh/github.com/shinjupaw.svg?label=%E2%99%A1&extraCount=9090&color=F7F4E2&labelColor=ECB2CC&logo=4chan"/></a> <img src="https://github.com/shinjupaw/shinjupaw/blob/3bf4cc2ff04663b4bd8e1e1bec0f08b737480dfe/6c691ed8.gif" alt="Description" width="28">
 &emsp;
 
-<sub> ${\textsf{\color{#f0c1df} “ order up ! ” }}$ </sub>
-
-&emsp;
-
-<a href="https://docs.google.com/document/d/14A-J0jDBFJ_Y1m_3bOU72U1mjOxvjhUlvIYIuReMWrk/edit?usp=drivesdk">awareness doc!!</a>
+${\textsf{\color{#f0c1df} “ it doesn 't matter }}$ ${\textsf{\color{#EDB3D0} where you go or what you }}$ ${\textsf{\color{#E6AAC0} do , i 'd love to spend these}}$ ${\textsf{\color{#DC8FA6} moments of the day with you! ”}}$
 
 &emsp;
 
