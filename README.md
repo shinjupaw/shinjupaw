@@ -20,7 +20,7 @@ ${\textsf{\color{#f0c1df} “ it doesn 't matter }}$ ${\textsf{\color{#EDB3D0} w
 
 &emsp;
 
-<a href="https://shinjupuppy.atabook.org/"><img src="https://github.com/shinjupaw/shinjupaw/blob/4721b1e325052d9c9ffa410c8cf50cd828e67592/Untitled318_20260714175613.png" alt="Description" width="250">
+<a href="https://shinjupuppy.atabook.org/"><img src="https://github.com/shinjupaw/shinjupaw/blob/4721b1e325052d9c9ffa410c8cf50cd828e67592/Untitled318_20260714175613.png" alt="Description" width="250"> <a href="https://artfight.net/~shinjupaw"><img src="https://github.com/shinjupaw/shinjupaw/blob/fa31eac493b348c8f8f3c58df7e6540e800ccdb5/Untitled318_20260715003550.png" alt="Description" width="250">
 
 
 &emsp;
