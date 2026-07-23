@@ -20,9 +20,9 @@ ${\textsf{\color{#f0c1df} “ it doesn 't matter }}$ ${\textsf{\color{#EDB3D0} w
 
 &emsp;
 
-${\textsf{\color{#f0c1df} sign ata }}$ ${\textsf{\color{#EDB3D0} and check }}$ ${\textsf{\color{#E6AAC0} artfight acc }}$ ${\textsf{\color{#DC8FA6} before leaving ! }}$
+${\textsf{\color{#f0c1df} sign ata and straw }}$ ${\textsf{\color{#EDB3D0} and check }}$ ${\textsf{\color{#E6AAC0} artfight acc }}$ ${\textsf{\color{#DC8FA6} before leaving ! }}$
 
-<a href="https://shinjupuppy.atabook.org/"><img src="https://github.com/shinjupaw/shinjupaw/blob/4721b1e325052d9c9ffa410c8cf50cd828e67592/Untitled318_20260714175613.png" alt="Description" width="250"> <a href="https://artfight.net/~shinjupaw"><img src="https://github.com/shinjupaw/shinjupaw/blob/3f4dff52e3b5470493f6814f112b3508cc249f02/Untitled318_20260715003858.png" alt="Description" width="250"> <a href="https://buppypaw.straw.page/"><img src="https://github.com/shinjupaw/shinjupaw/blob/4b2459edb30957068b663c49acdb6e44dc158595/Untitled318_20260723180922.png" alt="Description" width="250">
+<a href="https://shinjupuppy.atabook.org/"><img src="https://github.com/shinjupaw/shinjupaw/blob/bfc215d6844bf7d30e4582756479d1f0fe5a521e/Untitled318_20260723181707.png" alt="Description" width="250"> <a href="https://artfight.net/~shinjupaw"><img src="https://github.com/shinjupaw/shinjupaw/blob/3f4dff52e3b5470493f6814f112b3508cc249f02/Untitled318_20260715003858.png" alt="Description" width="250"> <a href="https://buppypaw.straw.page/"><img src="https://github.com/shinjupaw/shinjupaw/blob/4b2459edb30957068b663c49acdb6e44dc158595/Untitled318_20260723180922.png" alt="Description" width="250">
 &emsp;
 
 <details>
